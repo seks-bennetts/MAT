@@ -15,7 +15,7 @@ The natives learned to use this Magic. The people back on Earth became jealous o
 
 
 
-The long distance and the time it took to get from one solar system to the next made the war last longer than any war. After one hundred years of fighting, in the ILA Queen Pearl of Water Terra had a prophecy. Her Prophecy said,
+The long distance and the time it took to get from one solar system to the next made the war last longer than any war. After Fifty years of fighting, in the ILA Queen Pearl of Water Terra had a prophecy. Her Prophecy said,
 
 Await the daughters of Pearl…
 Await the time to unfurl,
